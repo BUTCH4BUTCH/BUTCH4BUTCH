@@ -2,5 +2,9 @@
 ![Tumblr_l_401164639505200](https://github.com/unkindentity/unkindentity/assets/172919129/ae489a70-43fe-468e-a3f0-03ca7c1ac917)
 ![Untitled886_20240622083724](https://github.com/unkindentity/unkindentity/assets/172919129/d50530e6-e857-405a-ad7f-baf6db60c9bf)
 ![Tumblr_l_402590165509977](https://github.com/unkindentity/unkindentity/assets/172919129/cb861487-0597-46df-bd6c-fc22ac0df7e0)
-![Tumblr_l_271348525584267](https://github.com/unkindentity/unkindentity/assets/172919129/58f7a47b-0697-4d80-9314-a1d42b4fa47a)
-![Untitled886_20240622091257](https://github.com/unkindentity/unkindentity/assets/172919129/ba6aaeea-504e-4890-9937-3816c6d13e02)
+![Untitled886_20240622200701](https://github.com/unkindentity/unkindentity/assets/172919129/1d5df458-f6f2-4fba-ae2d-d6167c369f13)
+![Isolde_Signature](https://github.com/unkindentity/unkindentity/assets/172919129/779f2748-3473-4904-8af7-0224518dcddf)
+![Untitled886_20240622200339](https://github.com/unkindentity/unkindentity/assets/172919129/902ab06b-4188-40fb-a184-fda2080bed5c)
+![Tumblr_l_271343392309190](https://github.com/unkindentity/unkindentity/assets/172919129/5df698b9-dbaf-489e-8c90-6a99b744a589)
+![isolde-reverse](https://github.com/unkindentity/unkindentity/assets/172919129/05c4924e-96f0-438d-a0b6-211d0ba010b3)
+
