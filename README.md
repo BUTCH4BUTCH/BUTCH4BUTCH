@@ -4,7 +4,4 @@
 ![Tumblr_l_402590165509977](https://github.com/unkindentity/unkindentity/assets/172919129/cb861487-0597-46df-bd6c-fc22ac0df7e0)
 ![Untitled886_20240622200701](https://github.com/unkindentity/unkindentity/assets/172919129/1d5df458-f6f2-4fba-ae2d-d6167c369f13)
 ![Isolde_Signature](https://github.com/unkindentity/unkindentity/assets/172919129/779f2748-3473-4904-8af7-0224518dcddf)
-![Untitled886_20240622200339](https://github.com/unkindentity/unkindentity/assets/172919129/902ab06b-4188-40fb-a184-fda2080bed5c)
 ![Tumblr_l_271343392309190](https://github.com/unkindentity/unkindentity/assets/172919129/5df698b9-dbaf-489e-8c90-6a99b744a589)
-![isolde-reverse](https://github.com/unkindentity/unkindentity/assets/172919129/05c4924e-96f0-438d-a0b6-211d0ba010b3)
-
